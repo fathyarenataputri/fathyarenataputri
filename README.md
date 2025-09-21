@@ -1,3 +1,4 @@
+![alt text](https://github.com/fathyarenataputri/Pertemuan-3-Metkom-2025/blob/main/download.jpeg?raw=true) 
 # Hi there, I'm Fathya 👋
 
 I'm currently learning *Geophysics* 
